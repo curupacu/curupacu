@@ -1,6 +1,6 @@
 ## Ola sou o Guilherme
 
-📖Cursando AMS desonvolvimento de sistemas na etec Heliopolis<br>
+📖Cursando AMS desenvolvimento de sistemas na etec Heliopolis<br>
 🔉Ingles avançado nivel Cambridge C1<br>
 
 
