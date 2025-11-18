@@ -1,7 +1,7 @@
 ## Ola sou o Guilherme2
 
 📖Cursando AMS desenvolvimento de sistemas na etec Heliopolis<br>
-🔉Ingles avançado nivel Cambridge C1<br>
+🔉Ingles avançado nivel Cambridge C4<br>
 
 
 ## 🌐 Redes Sociais:
